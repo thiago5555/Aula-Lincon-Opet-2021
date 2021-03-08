@@ -2,4 +2,4 @@
 
 adicione seu nome neste arquivo e faca um push
 
-![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)Lindomar
+![yagami](https://omelhordoskingoffighters.files.wordpress.com/2012/06/io-max.gif?w=300)Lindomar Bassetti
